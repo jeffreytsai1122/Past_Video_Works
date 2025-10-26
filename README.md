@@ -17,4 +17,4 @@ _____
 
 **Software**: Adobe Premiere
 
-***[Click here to open the link](https://en.blinkfilm.net/cf?wix-vod-video-id=ed03f989f54445b389250cd1aab89567&wix-vod-comp-id=comp-jwakmty5](https://www.youtube.com/watch?v=M76kegqwdoc&list=LL&index=4&t=2s)***
+***[Click here to open the link](https://www.youtube.com/watch?v=M76kegqwdoc&list=LL&index=4&t=2s)***
