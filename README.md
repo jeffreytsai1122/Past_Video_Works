@@ -5,6 +5,6 @@
 
 **Responsibilities**: Script planning, Post-production
 
-**Software**: Adobe Premiere
+**Software**: Adobe Premiere Pro
 
 ***[Click here to open the link](https://www.youtube.com/watch?v=M76kegqwdoc&list=LL&index=4&t=2s)***
