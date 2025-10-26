@@ -1,13 +1,3 @@
-# Video Title: ｜MOLLIFIX｜ Brand Ambassador Jia Yongjie – Fall/Winter New Collection
-**Description**: Mollifix launched its new Fall/Winter collection, inviting brand ambassador Jia Yongjie to share her thoughts on outdoor activities in autumn. The interview-style video is interwoven with scenes of her wearing the products in real-life settings, allowing consumers to feel how Mollifix naturally fits into their everyday lives.
-
-**Responsibilities**: Post-production
-
-**Software**: Adobe Premiere
-
-***[Click here to open the link](https://youtu.be/NzmV9CNA1ck?si=udD95VTyuhFtPm3S)***
-
-_____
 # Video Title: Equal rights, Healthy life - Taiwan NHI 
 (University works for Young Lions Creative Competition at the Cannes Lions International Festival of Creativity)
 
